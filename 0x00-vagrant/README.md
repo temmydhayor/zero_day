@@ -1,1 +1,1 @@
-Life is beeautiful
+Life is beautiful
